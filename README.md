@@ -10,10 +10,10 @@
 ![6d4a3d99d930dbe5c92590dd8b272fa19715d9d1](https://github.com/user-attachments/assets/82d42b7d-b324-459d-9547-800ba951fc1c)꒰ hai .... I'm _Skippy_ or _Starious_ ^_^ Idm Shelly as well or  Ginger ![f15tlg](https://github.com/user-attachments/assets/ae17d1c8-c98a-4f1d-8cdb-226ea66c3845)
 
 
-![6d4a3d99d930dbe5c92590dd8b272fa19715d9d1](https://github.com/user-attachments/assets/82d42b7d-b324-459d-9547-800ba951fc1c)꒰ I GO BY ANY PRONOUNS (⁠.⁠ ⁠❛⁠ ⁠ᴗ⁠ ⁠❛⁠.⁠) ! Though I prefer He / They =D themk yew ![IMG-8955](https://github.com/user-attachments/assets/3af81b5d-4230-4e80-bc2e-2450219f3ca6)
+![6d4a3d99d930dbe5c92590dd8b272fa19715d9d1](https://github.com/user-attachments/assets/82d42b7d-b324-459d-9547-800ba951fc1c)꒰ I GO BY ANY PRONOUNS (⁠.⁠ ⁠❛⁠ ⁠ᴗ⁠ ⁠❛⁠.⁠) ! Though I prefer He / They = D themk yew ![IMG-8955](https://github.com/user-attachments/assets/3af81b5d-4230-4e80-bc2e-2450219f3ca6)
 
 
-![6d4a3d99d930dbe5c92590dd8b272fa19715d9d1](https://github.com/user-attachments/assets/82d42b7d-b324-459d-9547-800ba951fc1c)꒰ Sys , Fictkin — " F(ronting) : " is in my discord :P ![69](https://github.com/user-attachments/assets/c373e79e-a21f-4ff3-b1b0-148a6a7e1744)
+![6d4a3d99d930dbe5c92590dd8b272fa19715d9d1](https://github.com/user-attachments/assets/82d42b7d-b324-459d-9547-800ba951fc1c)꒰ Sys , Fictkin — " F(ronting) : " is in my discord =P ![69](https://github.com/user-attachments/assets/c373e79e-a21f-4ff3-b1b0-148a6a7e1744)
 
 
 ![6d4a3d99d930dbe5c92590dd8b272fa19715d9d1](https://github.com/user-attachments/assets/82d42b7d-b324-459d-9547-800ba951fc1c)꒰ GMT+8 I'm Filipino , I'm open talking in Tagalog and PLS be aware I'm often toxic and I respect boundaries to the fullest![1cc99794](https://github.com/user-attachments/assets/03f68818-3f7f-450d-b9a3-eb7ebb2b8105)
