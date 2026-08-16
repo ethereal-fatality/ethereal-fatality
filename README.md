@@ -4,4 +4,4 @@
 ![](https://komarev.com/ghpvc/?username=ethereal-fatality&base=1&label=bunnies.&color=000000)
 
 
-Layout soon !!
+all links being reworked.
